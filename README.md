@@ -1,0 +1,1 @@
+pov: na kalata bashtata
